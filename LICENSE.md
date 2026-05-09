@@ -1,4 +1,4 @@
-
+Experience my avatar like never before with best Script for my avatar, the #1 Script. Includes aimbot and auto-collect for unbeatable performance.
 
 
 
